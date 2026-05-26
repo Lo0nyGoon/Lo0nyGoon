@@ -1,4 +1,6 @@
-## Hi there 👋
+![My Image](https://i.pinimg.com/736x/99/06/03/990603bb826b7821afc1a45b3edf8f1f.jpg)
+
+<a href="https://rekidepres.straw.page" style="color: green;">STRAWPAGE</a><p align="right">  <a href="https://javidepres.atabook.org/">ATABUKK</a></p>
 
 <!--
 **Lo0nyGoon/Lo0nyGoon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
