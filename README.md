@@ -18,9 +18,6 @@ href=https://rekidepres.straw.page>lufi</a>
 $$\color{#800020} \text{𝕬𝖓𝖉 𝖜𝖎𝖙𝖍𝖔𝖚𝖙 𝖘𝖙𝖗𝖊𝖓𝖌𝖙𝖍 𝖞𝖔𝖚 𝖈𝖆𝖓𝖓𝖔𝖙 𝖕𝖗𝖔𝖙𝖊𝖈𝖙 𝖆𝖓𝖞𝖙𝖍𝖎𝖓𝖌.}$$ $$\color{#800020} \text{𝕷𝖊𝖙 𝖆𝖑𝖔𝖓𝖊 𝖞𝖔𝖚𝖗𝖘𝖊𝖑𝖋.}
 $$
 
-<img width="736" height="414" alt="1000148664" src="https://github.com/user-attachments/assets/51716c80-97fc-4c4f-806e-2b0f411e8502" />
+<img width="736" height="736" alt="1000148676" src="https://github.com/user-attachments/assets/2a6289ce-1ce4-469c-83b5-5336f7680752" />
 
-<img width="736" height="149" alt="1000148667" src="https://github.com/user-attachments/assets/08e92d07-418e-4058-9b3b-87eb4b9d3d87" />
-
-<img width="498" height="312" alt="1000148670" src="https://github.com/user-attachments/assets/a18be839-6300-4d26-840e-c48afe52342c" />
-
+$$\color{#BE8400} \text {𝕬𝖛𝖊𝖗𝖞, 𝖂𝖍𝖆𝖙'𝖘 𝖎𝖓 𝖞𝖔𝖚𝖗 𝖎𝖓𝖛𝖊𝖓𝖙𝖔𝖗𝖞 }$$
