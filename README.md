@@ -19,3 +19,8 @@ $$\color{#800020} \text{𝕬𝖓𝖉 𝖜𝖎𝖙𝖍𝖔𝖚𝖙 𝖘𝖙𝖗�
 $$
 
 <img width="736" height="414" alt="1000148664" src="https://github.com/user-attachments/assets/51716c80-97fc-4c4f-806e-2b0f411e8502" />
+
+<img width="736" height="149" alt="1000148667" src="https://github.com/user-attachments/assets/08e92d07-418e-4058-9b3b-87eb4b9d3d87" />
+
+<img width="498" height="312" alt="1000148670" src="https://github.com/user-attachments/assets/a18be839-6300-4d26-840e-c48afe52342c" />
+
