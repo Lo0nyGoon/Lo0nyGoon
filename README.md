@@ -7,6 +7,6 @@ $$\color{#FFFFFF} \text{  Feel free to int unless i wasn't afk/offtab/dni oc ༯
 <p align="center"> <a
 href=https://javidepres.atabook.org/>ata</a>
 <img
-  href=https://rekidepres.straw.page>straw</a>                  
+  href=https://rekidepres.straw.page>straw</a>       <img          
 
 
