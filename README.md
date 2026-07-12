@@ -4,10 +4,11 @@ $$\color{#C7CEBE} \text{  𝘽𝙧𝙤𝙠𝙚𝙗𝙖𝙘𝙠 𝙈𝙤𝙪𝙣�
 
 <a href="https://rekidepres.straw.page" style="color: green;">STRAWPAGE</a><p align="right">  <a href="https://javidepres.atabook.org/">ATABUKK</a></p>
 
-<!--
-**Lo0nyGoon/Lo0nyGoon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"> <a
+href=https://javidepres.atabook.org/>ata</a>
+<img
+                    
 
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
