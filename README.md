@@ -13,6 +13,5 @@ href=https://rekidepres.straw.page>lufi</a>
 
 
  <img width="1200" height="1080" alt="Image" src="https://mrwallpaper.com/images/hd/devil-may-cry-anime-dante-gtc3rlqrqj6aubzx.jpg" />    
- ![gaze count] (https://komarev.com/ghpvc/?username=Lo0nyGoon&label=gaze%20count&color=800020&style=flat-square)
-
+ 
 
