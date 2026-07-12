@@ -1,3 +1,9 @@
+
+<p align="center"> <a
+                     
+![](https://komarev.com/ghpvc/?username=Lo0nyGoon&color=red)
+
+
 <img width="500" height="210" alt="1000148680" src="https://github.com/user-attachments/assets/0ea07c86-b649-491e-97c7-a04d0329f24e" />
 
 
