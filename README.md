@@ -20,4 +20,4 @@
 
 
 <div align="center">
-<img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&left_color=Maroon&Red=Red&left_text=bibinos;"/>
+<img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&right_color=Maroon&Red=Red&left_text=bibinos;"/>
