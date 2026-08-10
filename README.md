@@ -15,9 +15,11 @@
 
 
 
-<th
-  $\color{800000}\normalsize{\text{𝐰𝐬𝐠 𝐠 ` , 𝐀𝐞𝐫𝐨 𝐕𝐚𝐧𝐜𝐞 𝐡𝐞𝐫𝐞! 𝐈𝐦 𝐢𝐧 𝐦𝐚𝐧𝐲 𝐟𝐚𝐧𝐝𝐨𝐦𝐬 × 𝐝𝐨𝐧'𝐭 𝐛𝐞𝐥𝐢𝐞𝐯𝐞 𝐚𝐧𝐲 𝐦𝐢𝐬𝐢𝐧𝐟𝐨𝐫𝐦𝐚𝐭𝐢𝐨𝐧 𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 𝐨𝐧 𝐥𝐢𝐛𝐫𝐚𝐫𝐲 𝐚𝐫𝐞𝐚 𝐭𝐡𝐞𝐲 𝐚𝐫𝐞 𝐛𝐮𝐧𝐬 𝐋𝐌𝐅𝐀𝐎 × `}} <br>
+<p align="center">
+  $$\color{#800000} \text{ ` , 𝐀𝐞𝐫𝐨 𝐕𝐚𝐧𝐜𝐞 𝐡𝐞𝐫𝐞! 𝐈𝐦 𝐢𝐧 𝐦𝐚𝐧𝐲 𝐟𝐚𝐧𝐝𝐨𝐦𝐬 ×}$$ 
+$$\color{#800000} \text{ `𝐝𝐨𝐧'𝐭 𝐛𝐞𝐥𝐢𝐞𝐯𝐞 𝐚𝐧𝐲 𝐦𝐢𝐬𝐢𝐧𝐟𝐨𝐫𝐦𝐚𝐭𝐢𝐨𝐧 𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 𝐨𝐧}$$
+$$\color{#800000} \text{  𝐥𝐢𝐛𝐫𝐚𝐫𝐲 𝐚𝐫𝐞𝐚 𝐭𝐡𝐞𝐲 𝐚𝐫𝐞 𝐛𝐮𝐧𝐬 𝐋𝐌𝐅𝐀𝐎 × `}$$
 
 
 <div align="center">
-<img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&right_color=Maroon&Red=Red&left_text=bibinos;"/>
+<img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&right_color=Maroon&Red=Red&left_text=bibinos"/>
