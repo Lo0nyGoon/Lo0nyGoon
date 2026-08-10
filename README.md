@@ -12,4 +12,5 @@
   </table>
   <a href="https://rekidepres.straw.page"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=20&duration=1000&pause=&color=800000&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Strawpage" alt="Typing SVG" /></a>
 
-  
+<th
+  $\color{800000}\normalsize{\text{ 
