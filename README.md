@@ -12,8 +12,8 @@ $$\color{#FFFFFF} \text{  𝕱𝖊𝖊𝖑 𝖋𝖗𝖊𝖊 𝖙𝖔 𝖎𝖓�
 
 ![My Image](https://upload.wikimedia.org/wikipedia/fy/b/bc/Brokeback_Mountain_logo.png)
 
-<p align="center"> <a href="https://acxersaurus.atabook.org/">
-  <img src="https://github.com/Lo0nyGoon/Lo0nyGoon/blob/4d3409cc78284eb6551194ea382a2afcbdf6bfc3/Untitled245_20260719100359.png" width="300">
+<p align="center"> <a href="https://javidepres.atabook.org/">
+  <img src="https://github.com/Lo0nyGoon/Lo0nyGoon/blob/4d3409cc78284eb6551194ea382a2afcbdf6bfc3/Untitled40_20260810130428.png" width="300">
 </a>
 
 <p align="center"> <a
