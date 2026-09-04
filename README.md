@@ -27,4 +27,5 @@ $$\color{#D3D3D3} \text{   𝐋𝐌𝐅𝐀𝐎 × `}$$
 
 <p align="center">
 <img
+<img width="1199" height="802" alt="1000159794" src="https://github.com/user-attachments/assets/7b5eede7-e871-4e29-b897-983032c22383" />
 
