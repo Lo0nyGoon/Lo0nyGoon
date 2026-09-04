@@ -41,12 +41,17 @@ Visit Strawpage for more !.
 <img width="600" height="35" alt="1000159799" src="https://github.com/user-attachments/assets/576f1de3-c5ae-47ba-9a5a-2ac8bc89f45c" />
 
 
+</details>
+
+<img width="2048" height="171" alt="1000159797" src="https://github.com/user-attachments/assets/f9364d8d-29f0-4cb4-b430-7ea3ed2d8929" />
 
   </details>
 
 <img width="1199" height="802" alt="1000159794" src="https://github.com/user-attachments/assets/2a1d187a-0f26-4215-86db-f2b96de8870d" />
 
-
+</tr>
+  </table>
+  <a href="https://github.com/Lo0nyGoon"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=40&duration=1000&pause=&color=FFFFFF&center=true&vCenter=true&repeat=false&width=260&height=55&lines=ILOVELAIN" alt="Typing SVG" /></a>
 
 <img width="2048" height="171" alt="1000159797" src="https://github.com/user-attachments/assets/0181caf3-37f4-4026-8a86-01a3c884140f" />
 
