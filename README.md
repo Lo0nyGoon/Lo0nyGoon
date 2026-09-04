@@ -27,7 +27,7 @@ $$\color{#D3D3D3} \text{   𝐋𝐌𝐅𝐀𝐎 × `}$$
   
 <details>
 <summary>$${\color{#D3D3D3} BYI}$$ </summary>
-Listen, Just because i had a rough past with yall doesn't mean i didnt not fucking changed. I was never kind to begin with, i rather enjoy myself to the fullest with people who dont aren't insensitive,..assholes Some people can't even let go some grudges like get a hold of yourself lmfao..key word " SOME ", some yt ass might attack me again! womp womp..multinames Reki,Aero,Tsikot
+Listen, Just because i had a rough past with yall doesn't mean i didnt not fucking changed. I was never kind to begin with, i rather enjoy myself to the fullest with people who  are fun,..assholes, Some people can't even let go some grudges like get a hold of yourself lmfao..key word " SOME ", some yt ass might attack me again! womp womp..multinames Reki,Aero,Tsikot
 
 Visit Strawpage for more !.
   
