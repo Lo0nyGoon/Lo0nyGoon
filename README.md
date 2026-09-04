@@ -26,10 +26,10 @@ $$\color{#D3D3D3} \text{   𝐋𝐌𝐅𝐀𝐎 × `}$$
 <img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&right_color=Grey&Red=Red&left_text=bibinos"/>
   
 <details>
-<summary>$${\color{#D3D3D3} "BYI"}$$ </summary>
-Listen 
+<summary>$${\color{#D3D3D3} BYI}$$ </summary>
+Listen, Just because i had a rough past with yall doesn't mean i didnt not fucking changed. I was never kind to begin with, i rather enjoy myself to the fullest with people who dont aren't insensitive,..assholes Some people can't even let go some grudges like get a hold of yourself lmfao..key word " SOME ", some yt ass might attack me again! womp womp..multinames Reki,Aero,Tsikot
+
+Visit Strawpage for more !.
   
-<p align="center">
-<img
-<img width="1199" height="802" alt="1000159794" src="https://github.com/user-attachments/assets/7b5eede7-e871-4e29-b897-983032c22383" />
+
 
