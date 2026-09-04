@@ -22,7 +22,7 @@ $$\color{#260000} \text{   𝐋𝐌𝐅𝐀𝐎 × `}$$
 
 
 <div align="center">
-<img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&right_color=Maroon&Red=Red&left_text=bibinos"/>
+<img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&right_color=Grey&Red=Red&left_text=bibinos"/>
 
 <p align="center">
 <img
