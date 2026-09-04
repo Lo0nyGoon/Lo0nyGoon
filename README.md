@@ -1,3 +1,7 @@
+<img width="2048" height="552" alt="1000159795" src="https://github.com/user-attachments/assets/78c5fdc8-519f-41e9-bcf8-2cb404f8b898" />
+
+
+
 <div align="center">
 
 </tr>
@@ -31,8 +35,16 @@ Listen, Just because i had a rough past with yall doesn't mean i didnt not fucki
 
 Visit Strawpage for more !.
 
+<img width="465" height="537" alt="1000159789" src="https://github.com/user-attachments/assets/31fa3961-49a8-4bf0-8d6e-9ffeb08792bf" />
+
+
   </details>
 
 <img width="1199" height="802" alt="1000159794" src="https://github.com/user-attachments/assets/2a1d187a-0f26-4215-86db-f2b96de8870d" />
 
-  
+
+
+
+
+  <img width="2048" height="860" alt="1000159796" src="https://github.com/user-attachments/assets/40fd7ea4-ab8e-44bb-b5d1-4508756b9888" />
+
