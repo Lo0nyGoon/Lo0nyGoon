@@ -43,7 +43,8 @@ Visit Strawpage for more !.
 
 </details>
 
-<img width="2048" height="171" alt="1000159797" src="https://github.com/user-attachments/assets/f9364d8d-29f0-4cb4-b430-7ea3ed2d8929" />
+<img width="2048" height="171" alt="1000159800" src="https://github.com/user-attachments/assets/d2ddbd15-df2f-4922-b89d-977b0ed0b76b" />
+
 
   </details>
 
@@ -53,7 +54,8 @@ Visit Strawpage for more !.
   </table>
   <a href="https://github.com/Lo0nyGoon"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=40&duration=1000&pause=&color=FFFFFF&center=true&vCenter=true&repeat=false&width=260&height=55&lines=ILOVELAIN" alt="Typing SVG" /></a>
 
-<img width="2048" height="171" alt="1000159797" src="https://github.com/user-attachments/assets/0181caf3-37f4-4026-8a86-01a3c884140f" />
+<img width="2048" height="171" alt="1000159801" src="https://github.com/user-attachments/assets/10bbf35c-4c50-42af-bb06-657d07ba7cbf" />
+
 
 
   <img width="2048" height="860" alt="1000159796" src="https://github.com/user-attachments/assets/40fd7ea4-ab8e-44bb-b5d1-4508756b9888" />
