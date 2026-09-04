@@ -30,6 +30,9 @@ $$\color{#D3D3D3} \text{   𝐋𝐌𝐅𝐀𝐎 × `}$$
 Listen, Just because i had a rough past with yall doesn't mean i didnt not fucking changed. I was never kind to begin with, i rather enjoy myself to the fullest with people who  are fun,..assholes, Some people can't even let go some grudges like get a hold of yourself lmfao..key word " SOME ", some yt ass might attack me again! womp womp..multinames Reki,Aero,Tsikot
 
 Visit Strawpage for more !.
+
+  </details>
+
+<img width="1199" height="802" alt="1000159794" src="https://github.com/user-attachments/assets/2a1d187a-0f26-4215-86db-f2b96de8870d" />
+
   
-
-
