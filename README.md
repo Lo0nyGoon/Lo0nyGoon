@@ -31,11 +31,15 @@ $$\color{#D3D3D3} \text{   𝐋𝐌𝐅𝐀𝐎 × `}$$
   
 <details>
 <summary>$${\color{#D3D3D3} BYI}$$ </summary>
-Listen, Just because i had a rough past with yall doesn't mean i didnt not fucking changed. I was never kind to begin with, i rather enjoy myself to the fullest with people who  are fun,..assholes, Some people can't even let go some grudges like get a hold of yourself lmfao..key word " SOME ", some yt ass might attack me again! womp womp..multinames Reki,Aero,Tsikot
+
+<img width="2048" height="217" alt="1000159798" src="https://github.com/user-attachments/assets/d140f9d8-c2d3-4f6b-b3c3-63e642825b03" />
+
+  Listen, Just because i had a rough past with yall doesn't mean i did not fucking changed. I was never kind to begin with, i rather enjoy myself to the fullest with people who  are fun,..assholes, Some people can't even let go some grudges like get a hold of yourself lmfao..key word " SOME ", some yt ass might attack me again! womp womp..multinames Reki,Aero,Tsikot
 
 Visit Strawpage for more !.
 
-<img width="465" height="537" alt="1000159789" src="https://github.com/user-attachments/assets/31fa3961-49a8-4bf0-8d6e-9ffeb08792bf" />
+<img width="600" height="35" alt="1000159799" src="https://github.com/user-attachments/assets/576f1de3-c5ae-47ba-9a5a-2ac8bc89f45c" />
+
 
 
   </details>
@@ -44,6 +48,7 @@ Visit Strawpage for more !.
 
 
 
+<img width="2048" height="171" alt="1000159797" src="https://github.com/user-attachments/assets/0181caf3-37f4-4026-8a86-01a3c884140f" />
 
 
   <img width="2048" height="860" alt="1000159796" src="https://github.com/user-attachments/assets/40fd7ea4-ab8e-44bb-b5d1-4508756b9888" />
