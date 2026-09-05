@@ -39,6 +39,8 @@ $$\color{#D3D3D3} \text{   𝐋𝐌𝐅𝐀𝐎 × `}$$
   Multinames Reki,Aero,Tsikot
   
 Why are yall keep taking our group down?, we do not tolerate copying or whatever, yet some of yall even have friends who copy yet they are an exception because they ARE your friends, yet when it comes to US yall be throwing tantrums and negative to us. like yall do not want us to exist. even tho one of my friend has a copying incident i tried to talk it out on him and for fuck sake yall have the most common shit style that been going around in library for the fcuking past 3months, and yall didnt even btoher to say shit to them BUT MY FRIEND IS THE ONE YOU ALL WENT FOR??? what kinda bullshit is this.
+
+
 Visit Strawpage for more !.
 
 <img width="600" height="35" alt="1000159799" src="https://github.com/user-attachments/assets/576f1de3-c5ae-47ba-9a5a-2ac8bc89f45c" />
