@@ -50,20 +50,25 @@ Acting like a toddler get a grip.
 
 </details>
 
-<img width="2048" height="171" alt="1000159800" src="https://github.com/user-attachments/assets/d2ddbd15-df2f-4922-b89d-977b0ed0b76b" />
+<p align="center">
+<img src="https://github.com/user-attachments/assets/34e8448d-a372-426c-92d1-f92c5684de87" 
+alt="description" width="900" />
+</p>
 
 
   </details>
 
-<img width="1199" height="802" alt="1000159794" src="https://github.com/user-attachments/assets/2a1d187a-0f26-4215-86db-f2b96de8870d" />
+<p align="center">
+<img src="https://github.com/user-attachments/assets/472509e1-1d42-45b4-8cf1-46cf62f6737b"
+alt="description" width="900" />
+</p>
 
 </tr>
   </table>
   <a href="https://github.com/Lo0nyGoon"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=40&duration=1000&pause=&color=FFFFFF&center=true&vCenter=true&repeat=false&width=260&height=55&lines=ILOVELAIN" alt="Typing SVG" /></a>
 
-<img width="2048" height="171" alt="1000159801" src="https://github.com/user-attachments/assets/10bbf35c-4c50-42af-bb06-657d07ba7cbf" />
 
-
-
-  <img width="2048" height="860" alt="1000159796" src="https://github.com/user-attachments/assets/40fd7ea4-ab8e-44bb-b5d1-4508756b9888" />
-
+<p align="center">
+<img src="https://github.com/user-attachments/assets/6846864a-fd92-4d50-89bf-75472f04d1cf"
+alt="description" width="900" />
+</p>
