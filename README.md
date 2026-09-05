@@ -31,7 +31,7 @@ $$\color{#D3D3D3} \text{  tututu `}$$
 <img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&right_color=Grey&Red=Red&left_text=bibinos"/>
   
 <details>
-<summary>$${\color{#D3D3D3} BEFORE ⚡︎ YOU ⚡︎ INTERACT ⚡︎ OMD}$$ </summary>
+<summary>$${\color{#D3D3D3} BEFORE ྌ YOU ྌ INTERACT ྌ OMD}$$ </summary>
 
 <img width="2048" height="217" alt="1000159798" src="https://github.com/user-attachments/assets/d140f9d8-c2d3-4f6b-b3c3-63e642825b03" />
 
