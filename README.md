@@ -45,9 +45,8 @@ Please if i fucking bother you, the block button is open. i never wanted to star
 
 
 </details>
-
 <p align="center">
-<img src="https://github.com/user-attachments/assets/34e8448d-a372-426c-92d1-f92c5684de87" 
+<img src="https://github.com/user-attachments/assets/3d863562-5656-4394-88ea-bfec95e5c2a2" 
 alt="description" width="900" />
 </p>
 
