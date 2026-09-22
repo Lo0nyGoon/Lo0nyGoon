@@ -9,7 +9,9 @@
   </table>
   <a href="https://javidepres.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=40&duration=1000&pause=&color=FFFFFF&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Atabook" alt="Typing SVG" /></a>
   
-  <img width="640" height="640" alt="1000159783" src="https://github.com/user-attachments/assets/dc324ae5-b333-4897-a833-a0f7e03ad072" />
+
+  <img width="500" height="358" alt="1000160898" src="https://github.com/user-attachments/assets/df3623aa-b5bb-494f-aefb-b8a35443aa8a" />
+
 
 
 
@@ -17,21 +19,15 @@
 
 </tr>
   </table>
-  <a href="https://kaworushinji1.straw.page"><img src="https://readme-typing-svg.demolab.com?font=ZCOOL+KuaiLe&size=20&duration=1000&pause=&color=FFFFFF&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Strawpage" alt="Typing SVG" /></a>
+  <a href="https://kaworushinji1.straw.page"><img src="https://readme-typing-svg.demolab.com?font=ZCOOL+KuaiLe&size=20&duration=1000&pause=&color=FFFFFF&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Strawpage" alt="Typing SVG" /><
 
-
-
-<p align="center">
-  $$\color{#D3D3D3} \text{ ` 𝐀𝐞𝐫𝐨 𝐕𝐚𝐧𝐜𝐞 𝐡𝐞𝐫𝐞! 𝐈𝐦 𝐢𝐧 𝐦𝐚𝐧𝐲 𝐟𝐚𝐧𝐝𝐨𝐦𝐬 ×}$$ 
-$$\color{#D3D3D3} \text{ `𝐝𝐨𝐧'𝐭 𝐛𝐞𝐥𝐢𝐞𝐯𝐞 𝐚𝐧𝐲 𝐦𝐢𝐬𝐢𝐧𝐟𝐨𝐫𝐦𝐚𝐭𝐢𝐨𝐧 𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 }$$
-$$\color{#D3D3D3} \text{  tututu `}$$
 
 
 <div align="center">
 <img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&right_color=Grey&Red=Red&left_text=bibinos"/>
   
 <details>
-<summary>$${\color{#D3D3D3} BEFORE ྌ YOU ྌ INTERACT ྌ}$$ </summary>
+<summary>$${\color{#D3D3D3} BYI}$$ </summary>
 
 <img width="2048" height="217" alt="1000159798" src="https://github.com/user-attachments/assets/d140f9d8-c2d3-4f6b-b3c3-63e642825b03" />
 
