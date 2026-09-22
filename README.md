@@ -34,15 +34,10 @@ Please if i fucking bother you, the block button is open. i never wanted to star
 <img width="600" height="35" alt="1000159799" src="https://github.com/user-attachments/assets/576f1de3-c5ae-47ba-9a5a-2ac8bc89f45c" />
 
 
-</details>
-<p align="center">
-<img src="https://github.com/user-attachments/assets/3d863562-5656-4394-88ea-bfec95e5c2a2" 
-alt="description" width="900" />
-</p>
 
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/b6084ddb-28db-4249-add1-7ca3e6d0a0b2" 
+<img src="https://github.com/user-attachments/assets/60199d03-d8f1-4795-8077-f7b2ee182eae" 
 alt="description" width="900" />
 </p>
 
@@ -51,7 +46,7 @@ alt="description" width="900" />
   </details>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/472509e1-1d42-45b4-8cf1-46cf62f6737b"
+<img src="https://github.com/user-attachments/assets/09efff3a-5fae-4540-a9c4-a94147e8189b"
 alt="description" width="900" />
 </p>
 
