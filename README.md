@@ -55,12 +55,10 @@ alt="description" width="900" />
 alt="description" width="900" />
 </p>
 
-</tr>
-  </table>
-  <a href="https://github.com/Lo0nyGoon"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=40&duration=1000&pause=&color=FFFFFF&center=true&vCenter=true&repeat=false&width=260&height=55&lines=ILOVELAIN" alt="Typing SVG" /></a>
-
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/6846864a-fd92-4d50-89bf-75472f04d1cf"
 alt="description" width="900" />
 </p>
+
+
