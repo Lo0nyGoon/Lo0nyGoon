@@ -19,12 +19,13 @@ alt="description" width="900" />
 </p>
 
 
+<p align="center">
+<img src="https://hits.sh/github.com/Lo0nyGoon.svg?label=Magica%20!%20%F0%9F%90%BE&extraCount=1870&color=FF8DC7&labelColor=53435C" />
+</p>
 
 
 
 
-<div align="center">
-<img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&right_color=Grey&Red=Red&left_text=Magica Girl ! 💗"/>
   
 <details>
 <summary>$${\color{#D3D3D3} BYI}$$ </summary>
