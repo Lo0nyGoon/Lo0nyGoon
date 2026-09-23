@@ -23,7 +23,17 @@ alt="description" width="900" />
 <img src="https://hits.sh/github.com/Lo0nyGoon.svg?label=Magica%20!%20%F0%9F%90%BE&extraCount=1870&color=FF8DC7&labelColor=53435C" />
 </p>
 
-
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/8ecfc780-1954-49e5-9024-2dd928489ddf" width="30" />
+  <img src="https://github.com/user-attachments/assets/fdeb358c-5b0d-4512-973c-ed5c57ac4529" width="75" />
+  <img src="https://github.com/user-attachments/assets/2249720c-ee8d-4022-af65-08ef17865772" width="75" />
+  <img src="https://github.com/user-attachments/assets/43c170dc-65fc-4113-a628-23d36cff1643" width="60" />
+  <img src="https://github.com/user-attachments/assets/93f68463-4dff-4511-8c60-b695b49d349b" width="50" />
+  <img src="https://github.com/user-attachments/assets/1a75a7aa-24e2-4955-a9b3-dae52f52e358" width="90" />
+  <img src="https://github.com/user-attachments/assets/eb9b502f-4111-49b6-a985-a4dbbadc2690" width="65" />
+  <img src="https://github.com/user-attachments/assets/c6a25d1e-743c-4929-856d-ecd13ef30709" width="65" />
+  <img src="https://github.com/user-attachments/assets/8ecfc780-1954-49e5-9024-2dd928489ddf" width="30" />
+</p>
 
 
   
