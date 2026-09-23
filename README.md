@@ -11,7 +11,12 @@
   <a href="https://javidepres.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=40&duration=1000&pause=&color=FFFFFF&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Atabook" alt="Typing SVG" /></a>
   
 
-  <img width="500" height="358" alt="1000160898" src="https://github.com/user-attachments/assets/0445cd6d-b8da-4d25-af78-b2614bdfdb0b" />
+  
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/506f5740-9893-4d85-9380-d1c78cad384e"
+alt="description" width="900" />
+</p>
 
 
 
@@ -47,7 +52,7 @@ alt="description" width="900" />
   </details>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/506f5740-9893-4d85-9380-d1c78cad384e"
+<img src="https://github.com/user-attachments/assets/0445cd6d-b8da-4d25-af78-b2614bdfdb0b"
 alt="description" width="900" />
 </p>
 
