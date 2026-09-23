@@ -52,6 +52,13 @@ alt="description" width="900" />
 
 
 <p align="center">
+  <img src="https://github.com/user-attachments/assets/d772276c-900c-4679-99d0-e863553507ce" width="100" />
+  <img src="https://github.com/user-attachments/assets/ff342911-1319-4736-abb5-d4c011ee177e" width="100" />
+</p
+
+
+
+<p align="center">
 <img src="https://github.com/user-attachments/assets/e2e959b7-5a6d-4f8d-9127-43b09cb5d580"
 alt="description" width="900" />
 </p>
