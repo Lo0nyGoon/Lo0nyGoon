@@ -24,7 +24,7 @@ alt="description" width="900" />
 
 
 <div align="center">
-<img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&right_color=Grey&Red=Red&left_text=bibinos"/>
+<img src="https://visitor-badge.laobi.icu/badge?page_id=Lo0nyGoon.Lo0nyGoon&right_color=Grey&Red=Red&left_text=Magica Girl ! 💗"/>
   
 <details>
 <summary>$${\color{#D3D3D3} BYI}$$ </summary>
