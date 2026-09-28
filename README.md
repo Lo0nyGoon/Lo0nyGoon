@@ -46,7 +46,7 @@ alt="description" width="900" />
   </details>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/0445cd6d-b8da-4d25-af78-b2614bdfdb0b"
+<img src="https://github.com/user-attachments/assets/8f4bf9a3-df4e-4fac-a5a7-4728c7cdc3fe"
 alt="description" width="900" />
 </p>
 
@@ -63,5 +63,4 @@ alt="description" width="900" />
 <img src="https://github.com/user-attachments/assets/e2e959b7-5a6d-4f8d-9127-43b09cb5d580"
 alt="description" width="900" />
 </p>
-
 
